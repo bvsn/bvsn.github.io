@@ -1,1 +1,1 @@
-My super CV [page](https://bvsn.github.io) :)
+My super [portfolio](https://bvsn.github.io) 🚀
